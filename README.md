@@ -1,1 +1,0 @@
-# sinndd.github.io
